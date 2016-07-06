@@ -31,9 +31,5 @@ Feel free to contact me.
 Best regards,
 
 Arif Anjum
-1907-285, Enfield Place,
-Mississauga. ON.
-L5B 3Y6
-Canada.
 +16476775985
 arif.anjum@tu-dortmund.de
